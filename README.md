@@ -1,2 +1,2 @@
 I am a community taught web developer.
-You can drop me a mail at siddhantota@protonmail.com.
+You can drop me a mail at tothesip@gmail.com.
